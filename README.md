@@ -15,9 +15,11 @@
 * Collaborating with others and sharing ideas
 
 🗣️ Beyond technology:
+
 I’m a passionate public speaker and believe communication is one of the most important skills in tech. Being able to explain ideas clearly has helped me when presenting projects, collaborating with teams, and sharing technical work.
 
 🏆 Outside of academics:
+
 I’m a huge sports fan and enjoy following and engaging with different sports.
 
 📫 Feel free to connect with me:
